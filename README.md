@@ -21,4 +21,4 @@
 &rarr; LinkedIn: [Ricardo Martins](https://www.linkedin.com/in/ricardo-martins-94b70362/)
 
 ## Rever a palestra
-&rarr; _O link será disponibilizado após a palestra_
+&rarr; https://vimeo.com/320234990
